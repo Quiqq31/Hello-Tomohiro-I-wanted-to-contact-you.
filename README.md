@@ -1,4 +1,4 @@
-# Hello-Tomohio-I-wanted-to-contact-you.
+# Hello-Tomohiro-I-wanted-to-contact-you.
 Hello Tomohiro i dont know if you will see this, but i wanted to contact you (and didnt come up with a different way of doing so), before i start I want to tell you who i am and why im i contacting you.
 
 
